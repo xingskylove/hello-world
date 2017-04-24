@@ -1,2 +1,6 @@
 # hello-world
-just another repository
+
+Hi Xing!
+
+Xing here,I'm new here, my English is very poor. = =#
+I hope you can help me, I want to apply the IOS on your computer to play, ^ ^
